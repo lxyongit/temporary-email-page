@@ -28,4 +28,5 @@ Using Email-Temporary.com is very simple:
 4. Access received emails through the inbox on the site.
 5. Once you no longer need the address, simply let it expire.
 
-In summary, <a href="https://email-temporary.com/en" rel="dofollow">Fake Email</a> is the perfect solution for those looking to protect their privacy online. With its temporary and disposable email service, you can browse the web with peace of mind, knowing your personal information is protected. Visit [Email-Temporary.com](https://email-temporary.com/en) today and discover how it can help you maintain your privacy in the digital age.
+In summary, <a href="https://email-temporary.com/en" rel="dofollow">24 hour email</a> is the perfect solution for those looking to protect their privacy online. With its temporary and disposable email service, you can browse the web with peace of mind, knowing your personal information is protected. Visit [Email-Temporary.com](https://email-temporary.com/en) today and discover how it can help you maintain your privacy in the digital age.
+<a href="https://email-virtual.com" rel="dofollow">临时邮箱</a>
